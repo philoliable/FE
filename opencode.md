@@ -1,0 +1,2 @@
+opencode key： oc_sk_2adf69ce0cc7_MML9mfVK5xZ7Sh_iQWqWYtEhYrnhmEfV
+opencode ：liablews
